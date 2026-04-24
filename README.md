@@ -1,1 +1,2 @@
-Ganhamos a manga alteração f2
+Perdemos a manga
+oh droga
